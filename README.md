@@ -1,5 +1,6 @@
 <div align="center">
-
+<img width="1055" height="330" alt="venus lace" src="https://github.com/user-attachments/assets/af6bef2e-7304-414f-80a7-8619834b3626" />
+  
 ![rumors spreaded](https://komarev.com/ghpvc/?username=gossipsandrumors&label=rumors+spreaded&color=5D3A9B&style=flat-square)
 
 ゛`DNI SILVERBELL SHIPPERS.` ˶
@@ -10,3 +11,4 @@ $\color{rgb(0,102,204)}{\textsf{──}}$  [Strawpage](https://lovebsc.straw.pag
 
 </div>
 
+<img width="1055" height="330" alt="venus lace" src="https://github.com/user-attachments/assets/af6bef2e-7304-414f-80a7-8619834b3626" />
