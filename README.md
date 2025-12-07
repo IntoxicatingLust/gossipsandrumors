@@ -1,5 +1,6 @@
 <div align="center">
 
+![rumorsspread](https://komarev.com/ghpvc/?username=IntoxicatingLust&label=rumorsspread&color=241547&style=flat-square)
 
 `DNI SILVERBELL SHIPPERS.`
   
